@@ -1,0 +1,1 @@
+Versatile Audio Engineer holding extensive knowledge and experience with **Pro Tools**, **Reaper**, and **Wwise**. Collaborative and communicative with over 8 years of experience in sound design and post-production audio. Fully dedicated to team communication and creative innovation. 
